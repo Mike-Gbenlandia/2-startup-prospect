@@ -1,0 +1,57 @@
+[Skip to main content](https://fourthmainland.com/updates/#main-content)
+
+[![The FourthMainland Fund invests in 200,000-user media tech platform Storipod; Chude Jideonwo joins as Board Chair to build the social layer for African creator monetisation](https://fourthmainland.com/wp-content/uploads/2026/11/storiipod23.jpg)\\
+\\
+**The FourthMainland Fund invests in 200,000-user media tech platform Storipod; Chude Jideonwo joins as Board Chair to build the social layer for African creator monetisation** \\
+\\
+November 16, 2026Updates\\
+\\
+The FourthMainland Fund has invested in Storipod, a Nigerian-built media technology company developing new ways for African creators to publish, distribute and…](https://fourthmainland.com/the-fourthmainland-fund-invests-in-200000-user-media-tech-platform-storipod-chude-jideonwo-joins-as-board-chair-to-build-the-social-layer-for-african-creator-monetisation/)[![The FourthMainland Fund partners with Nigerian government to support media and creative entrepreneurs in pilot programme](https://fourthmainland.com/wp-content/uploads/2026/11/IMG_9274.JPG-935x1024.jpeg)\\
+\\
+**The FourthMainland Fund partners with Nigerian government to support media and creative entrepreneurs in pilot programme** \\
+\\
+November 13, 2026Updates\\
+\\
+The FourthMainland Fund has announced a new initiative in partnership with the Small and Medium Enterprises Development Agency of Nigeria (SMEDAN), committing…](https://fourthmainland.com/the-fourthmainland-fund-partners-with-nigerian-government-to-support-media-and-creative-entrepreneurs-in-pilot-programme/)[![The FourthMainland Fund invests in ‘The Perfect Spec’ faith-based film – produced by two former #WithChude producers](https://fourthmainland.com/wp-content/uploads/2026/11/We-are-investors-in-this-fantastic-new-film.-Ayobola-Eniola-is-producer-and-co-visionary-behind-.jpg)\\
+\\
+**The FourthMainland Fund invests in ‘The Perfect Spec’ faith-based film – produced by two former \#WithChude producers** \\
+\\
+November 12, 2026Updates\\
+\\
+The FourthMainland Fund is backing another exciting African film project, investing in The Perfect Spec, a new faith-based feature produced by Ayobola…](https://fourthmainland.com/the-fourthmainland-fund-invests-in-the-perfect-spec-faith-based-film-produced-by-two-former-withchude-producers/)[![Chude Jideonwo’s ‘How Depression Saved My Life’ wins Association of Nigerian Authors Prize for Non-fiction](https://fourthmainland.com/wp-content/uploads/2026/11/ANA-awards.jpg)\\
+\\
+**Chude Jideonwo’s ‘How Depression Saved My Life’ wins Association of Nigerian Authors Prize for Non-fiction** \\
+\\
+November 9, 2026Updates\\
+\\
+Chude Jideonwo’s bestselling memoir, How Depression Saved My Life, has won the Association of Nigerian Authors (ANA) Prize for Non-fiction, marking another…](https://fourthmainland.com/chude-jideonwos-how-depression-saved-my-life-wins-association-of-nigerian-authors-prize-for-non-fiction/)[![#WithChude Takes Its Signature Conversations to Moonshot 2026 with Special Live Interview Featuring Salem King](https://fourthmainland.com/wp-content/uploads/2026/11/Chude-and-Salem-King.jpg)\\
+\\
+**\#WithChude Takes Its Signature Conversations to Moonshot 2026 with Special Live Interview Featuring Salem King** \\
+\\
+November 8, 2026Updates\\
+\\
+#WithChude brought its signature storytelling and interview style to the stage of Moonshot by TechCabal 2026 with a special live conversation featuring…](https://fourthmainland.com/withchude-takes-its-signature-conversations-to-moonshot-2026-with-special-live-interview-featuring-salem-king/)[![‘She stayed when I had nothing’ — Meagan Good & her husband Jonathan Majors tear up during special #WithChude interview at Afriff](https://fourthmainland.com/wp-content/uploads/2026/11/Chude-with-Jonathan-Majors.jpeg)\\
+\\
+**‘She stayed when I had nothing’ — Meagan Good & her husband Jonathan Majors tear up during special \#WithChude interview at Afriff** \\
+\\
+November 8, 2026Updates\\
+\\
+Hollywood actors Jonathan Majors and Meagan Good became emotional during a special #WithChude conversation with Chude Jideonwo at the 15th Africa International…](https://fourthmainland.com/she-stayed-when-i-had-nothing-meagan-good-her-husband-jonathan-majors-tear-up-during-special-withchude-interview-at-afriff/)[![FourthMainland Releases New Documentary, #Before2027, on Nigerians’ Expectations Ahead of 2027 Elections](https://fourthmainland.com/wp-content/uploads/2026/11/Nigeria_-Faces-of-Tomorrow-683x1024.png)\\
+\\
+**FourthMainland Releases New Documentary, \#Before2027, on Nigerians’ Expectations Ahead of 2027 Elections** \\
+\\
+November 1, 2026Updates\\
+\\
+FourthMainland has announced the release of Part One of #Before2027, a new documentary that travels across Nigeria to examine how Nigerians across…](https://fourthmainland.com/chude-jideonwo-releases-before2027-a-documentary-on-the-nigeria-we-want-and-the-future-we-face/)[![#WithChude to host special episode interviewing Hollywood star, Meagan Good](https://fourthmainland.com/wp-content/uploads/2026/10/meagan-good-and-chude-819x1024.jpeg)\\
+\\
+**\#WithChude to host special episode interviewing Hollywood star, Meagan Good** \\
+\\
+October 31, 2026Updates\\
+\\
+Media entrepreneur, journalist, storyteller and host of #WithChude, Chude Jideonwo, is set to interview Hollywood star Meagan Good at the 2026 Africa…](https://fourthmainland.com/withchude-to-host-special-episode-interviewing-hollywood-star-meagan-good/)[![The FourthMainland Fund announces investment in 20-year-old content creator, Kenzy Ezike for slate of films](https://fourthmainland.com/wp-content/uploads/2026/10/kenzy-768x1024.jpeg)\\
+\\
+**The FourthMainland Fund announces investment in 20-year-old content creator, Kenzy Ezike for slate of films** \\
+\\
+October 5, 2026Updates\\
+\\
+The FourthMainland Fund, founded by media entrepreneur Chude Jideonwo, has announced an investment in 20-year-old content creator Kelvin Ezike, popularly known as…](https://fourthmainland.com/the-fourthmainland-fund-announces-investment-in-20-year-old-content-creator-kenzy-ezike-for-slate-of-films/)
